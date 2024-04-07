@@ -8,7 +8,7 @@
 
 - 👯 I’m looking to collaborate on **Kaggle Projects**
 
-- 🤝 I’m looking for help with **enhancing social presence**
+- 🤝 I’m looking for help with **technical developemnt and enhancing social presence just building confidence [ALL THE BEST TO ME :)]**
 
 - 👨‍💻 All of my projects are available at [will be available soon]
 
